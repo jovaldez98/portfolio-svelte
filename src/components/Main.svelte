@@ -1,0 +1,1 @@
+Hello, welcome to my portfolio! I am a newbe on here so please be kind.
